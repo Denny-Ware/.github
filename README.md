@@ -1,3 +1,3 @@
-# Welcome to Denny-Ware
-
-**A place where I post my scripts for ROBLOX, etc.**
+# Your here for mangoexploit or my other scripts
+# Well, just download it from mangoexploit repo. Thanks for being here
+#
